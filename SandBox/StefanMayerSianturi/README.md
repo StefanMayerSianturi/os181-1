@@ -1,1 +1,0 @@
-# Stefan Mayer Sianturi's Sandbox

@@ -1,1 +1,0 @@
-shavira adeva's README
